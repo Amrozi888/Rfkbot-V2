@@ -9,11 +9,12 @@ BIG THANKS TO
 •Ariffb
 •Amel
 •IrwanX
+•Zifabotz
 •Dawnfrosty
 •Rteam1
 •Beniismael
 •Raditya 
-•AlyaaXzy (gua)
+•AlyaaXzy
 •Furqan
 •Elyas
 •Rasel
